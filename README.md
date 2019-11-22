@@ -2,4 +2,4 @@
 Just another repository
 
 
-cannot ait to actually learn this
+cannot wait to actually learn this
